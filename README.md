@@ -1,0 +1,1 @@
+# java-strukturavalto2-halado
