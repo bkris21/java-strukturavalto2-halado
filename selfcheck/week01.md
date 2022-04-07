@@ -1,0 +1,1 @@
+Itt lesznek az első heti kötelező videók.
